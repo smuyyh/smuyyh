@@ -1,4 +1,4 @@
-[**阿里盒马**进军社区团购，紧急招聘：Android、iOS、Java...](https://mp.weixin.qq.com/s/HJ0odFWtw41HgnOdhFFI2A)
+[**阿里盒马**进军社区团购，紧急招聘：Android、iOS、Java...](https://mp.weixin.qq.com/s/HJ0odFWtw41HgnOdhFFI2A) , 欢迎投递简历到 [smuyyh@gmail.com](mailto:smuyyh@gmail.com)
 
 [![](https://komarev.com/ghpvc/?username=smuyyh&color=blueviolet)](https://github.com/smuyyh)
 
